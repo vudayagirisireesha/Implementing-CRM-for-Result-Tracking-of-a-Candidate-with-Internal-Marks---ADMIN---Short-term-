@@ -1,0 +1,1 @@
+# Implementing-CRM-for-Result-Tracking-of-a-Candidate-with-Internal-Marks---ADMIN---Short-term-
